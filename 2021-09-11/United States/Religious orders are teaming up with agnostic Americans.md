@@ -1,0 +1,12 @@
+###### Nuns and nones
+# Religious orders are teaming up with agnostic Americans 
+##### Sisters are not doing it for themselves 
+![image](images/20210911_USP002_0.jpg) 
+> Sep 11th 2021 
+CASEY ROSENGREN has been fascinated by religion since he joined (and left) a 12-step recovery group in his early 20s. Since then, the 30-year-old has explored mindfulness, Western Buddhism, the Quakers and mega-church Christianity “to see what all the buzz was about”. One of his most recent forays involves an 83-year-old nun in a convent.
+He was introduced to Janet Marchesani, a member of the Dominican Sisters of Hope in New York, by Nuns &amp; Nones, an organisation that sets up meetings between Catholic sisters and people with no religious affiliation in 13 cities. Mr Rosengren and Sister Marchesani became pen pals. Mr Rosengren, an agnostic, says he has no intention of joining a church but has learned “more about what brings life richness in a religious order”.
+
+Nuns &amp; Nones was established by a group of nones in response to two phenomena: the fast-growing number of Americans of no religion—nearly half of millennials say they are “nones”—and the rapid decline of a once-prominent religious tradition. In 1965 there were 180,000 sisters, many of them working in a large network of hospitals and schools. By 2020 they numbered just 41,000. With an average age of over 80 and few vocations, nuns in America are disappearing.
+The nones who founded Nuns &amp; Nones say the purpose is not to spark religious conversions but to introduce one generation of “seekers” to another. Brittany Koteles, a co-director, says sisters can offer an example to young people looking for “meaning” thanks to their vow of poverty and social activism (though most nuns don’t call it that). After the Second Vatican Council reforms of the 1960s many sisters, who had held leadership roles as doctors, nurses and teachers when such work was unusual for women, moved into work with the poor. Some became politically outspoken, campaigning for civil rights.
+In 2012 the Vatican took over their main umbrella group, the Leadership Conference of Women Religious, because it worried that they were focusing on social justice at the expense of the church’s social and sexual teachings. (In 2015 under Pope Francis, the Vatican restored control to the women.) This history has won nuns some fans among young idealists, whether they are interested in the idea of God or not.
+

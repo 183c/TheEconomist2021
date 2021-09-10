@@ -1,0 +1,13 @@
+###### Mega-country, micro-pensions
+# Nigeria is struggling to get informal workers to save 
+##### Fintech may be the answer 
+![image](images/20210911_map501.jpg) 
+> Sep 9th 2021 
+BETWEEN A SLUMPING economy and gnawing inflation, Nigerians are finding life tough. Temilola Balogun, who owns a clothing shop in Lagos, the commercial capital, sighs that it is hard to save anything. This is typical: most adults in Africa’s most populous country do not pay into a pension. Few will be able to retire without being supported by their children.
+To change this, in 2019 the government started a “micro-pensions” scheme aimed primarily at informal workers, who make up 80% of the workforce. This is more flexible than old-school pension plans that have hefty fees, high minimum contributions and, in some cases, charge penalties for missed payments. Similar plans have worked in countries such as Kenya, which in 2011 launched its Mbao plan. It allows savers to contribute as little as 20 shillings ($0.19) a day. By 2018 it had 100,000 members. Nigeria hopes that 30% of working-age people will have pensions by 2024.
+
+Getting there will be a challenge. Pension systems are typically built for employees with stable incomes, not those with the precarious incomes of informal jobs. “They’re thinking about what they need to earn to eat today,” not what they might save, says Oguche Agudah, who heads the Pension Fund Operators Association of Nigeria, a trade body.
+There are other problems, too. Pension firms see lots of cost and little profit in harvesting small pots of savings. And in a country with high levels of corruption, many Nigerians are reluctant to hand over their money. For all these reasons the Nigerian scheme has got off to a stuttering start. By December only 62,000 people had signed up for micro-pensions.
+Startups may change that. Awabah, a Nigerian fintech company whose name means “Our money” in the local pidgin, is trying to use “dumb” mobile phones to gather savings. It says the technology can lower costs and reach the unbanked in the countryside. The firm’s agents teach people about inflation and the benefits of compound interest.
+If startups can, indeed, help micro-pensions take off, the benefits would go beyond helping people save. Pooled together, micro-pensions could add up to large sums of capital that could be invested in infrastructure or businesses, which is exactly what Nigeria needs to provide jobs for its fast-growing population. ■
+
