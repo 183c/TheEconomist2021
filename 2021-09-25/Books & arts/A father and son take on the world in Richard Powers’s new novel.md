@@ -1,0 +1,13 @@
+###### Dystopian fiction
+# A father and son take on the world in Richard Powers’s new novel 
+##### Shortlisted for the Booker, “Bewilderment” engages the heart as well as the head 
+![image](images/20210925_bkp505.jpg) 
+> Sep 25th 2021 
+Bewilderment. By Richard Powers. W.W. Norton &amp; Company; 288 pages; $27.95. William Heinemann; £18.99
+AN ECOLOGICAL EPIC about deforestation, “The Overstory” brought Richard Powers a wider readership when it won a Pulitzer in 2019. His new novel, shortlisted for this year’s Booker prize, may make him even better known. It is a shorter, more intimate tale that still wrestles with the scientific themes that are his hallmark.
+
+The story is set in Wisconsin and narrated by Theo, a widowed astrobiologist. He is struggling to bring up his son, Robin, whose diagnosis of autism he resists, and whom the novel follows from the age of eight to ten. Robin’s mother, Alyssa, recently died in a car crash; he is disruptive at school. Distressed about global warming and the ruin of the natural world, he is consoled by playing a game in which he and his father imagine life on other planets.
+When the trouble at school escalates, the possibility arises of Robin taking part in a pioneering neuro-imaging therapy, which reduces his stress levels by teaching him to mimic his mother’s erstwhile brain activity. Theo agrees to let Robin appear in the programme’s publicity film, but the resulting attention spirals out of control.
+This science-tinged home-schooling drama takes place against a dystopian backdrop of extreme weather, crop failures and rampaging militias—encouraged by an authoritarian president who locks up journalists and outlaws dissent. Sabres rattle between America and China. By the end, a viral brain disease has spread from cattle to humans. “Bewilderment” comes to resemble a fictional cousin of “The Road”, Cormac McCarthy’s novel of 2006 in which a widowed father and his son tell each other stories during an apocalypse.
+The regretful past tense in which Theo recounts events generates suspense, as does the nagging question of why Robin’s dialogue (like Alyssa’s) is presented in italics, whereas the rest appears in inverted commas. By folding his vast themes into a blend of speculative fiction and domestic realism, Mr Powers succeeds in engaging both head and heart. And through its central story of bereavement, this novel of parenting and the environment becomes a multifaceted exploration of mortality. ■
+
