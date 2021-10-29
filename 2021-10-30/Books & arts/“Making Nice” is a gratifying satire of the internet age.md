@@ -1,0 +1,13 @@
+###### British fiction
+# “Making Nice” is a gratifying satire of the internet age 
+##### Ferdinand Mount’s new novel revolves around a publicity agency in London 
+![image](images/20211030_bkp004.jpg) 
+> Oct 30th 2021 
+Making Nice. By Ferdinand Mount. Bloomsbury Continuum; 256 pages; £16.99
+BRITISH NOVELISTS excel at capturing the cut and thrust of a newsroom in a genre perhaps best described as the hack picaresque. Evelyn Waugh is its standard-bearer. His novel of 1938, “Scoop”, follows a man of modest means mistaken for a foreign correspondent and sent to a fictional country in east Africa. The tale is an outstanding satire of the media’s mores and its insatiable hunger for titbits and gossip.
+
+“Making Nice”, Ferdinand Mount’s new novel, is clearly indebted to “Scoop” but updates its setting to the modern information age. Here news stories are written about social-media posts. Any middle-aged old-school reporters who aren’t dreaming up clickbait for meagre salaries have been tossed onto the slag heap, along with their obsolete fax machines.
+The book’s protagonist is Dickie Pentecost, a diplomatic correspondent who has recently been made redundant. Like Waugh’s hero, William Boot, Dickie is swept up in a series of misadventures, this time in a digital world. Ethelbert (“Ethel” for short), the eccentric and mysterious panjandrum of Making Nice, a publicity agency, hires Dickie to participate in various schemes involving a corrupt African leader in exile, a Trump-like American politician and a pompous British MP who presses Dickie into service to ghostwrite his memoirs. The operating principle: make the greedy seem altruistic, and transmute tyrants into humanitarians, all in the name of “reputation retrieval”.
+Mr Mount has a great ear for corporate doublespeak, used by Ethel to justify his company’s online skulduggery. When Dickie inquires about the company’s name, Ethel tells him that his mission is to “transform the System into a game you can’t help falling in love with”.Sure enough, Dickie’s daughter Flo is seduced by Ethel’s dazzling pitches and takes to writing fake positive reviews for clients (known as “astroturfing”) at his behest.
+“Making Nice” lays bare how lies in the internet age have poisoned the truth and suggests everyone is more susceptible to nuanced spin. This would all be horribly depressing were it not for the book’s light touch. Mr Mount has written a satire to be consumed in one sitting, a pointed critique of the modern world delivered with pluck and verve. ■
+
